@@ -13,3 +13,16 @@ My future of going to Japan is not just about the language but also the culture.
 
 Japan is a country not so far from my country 	![Yess ](https://pbs.twimg.com/media/EnpKypPXEAMrDpt.png)
 
+Description on My Japanese Dreams 
+
+
+
+Japan made inventions 
+
+Anime
+
+Toyota
+
+Nintendo 
+
+
