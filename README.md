@@ -15,14 +15,8 @@ Japan is a country not so far from my country 	![Yess ](https://pbs.twimg.com/me
 
 Description on My Japanese Dreams 
 
+Explore the world wide and good places in Japan, it just feels different when you see them in real life and also it's difference from other country. 
 
-
-Japan made inventions 
-
-Anime
-
-Toyota
-
-Nintendo 
-
+![alt text](![image](https://user-images.githubusercontent.com/122424133/218228906-67434d95-44d4-4abe-8e53-cc2a45b04865.png)
+)
 
